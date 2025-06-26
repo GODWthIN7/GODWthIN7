@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GODWthIN7
-- 👀 I’m interested in ... Learning an new skill set!!
+- 👀 I’m interested in ... Learning any new skill set!!
 - 🌱 I’m currently learning ...Github
 - 💞️ I’m looking to collaborate on ... Beginner level projects
 - 📫 How to reach me ..
